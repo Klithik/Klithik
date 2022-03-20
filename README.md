@@ -1,4 +1,2 @@
-- 👋 Hi, I’m @Klithik
-- I'm a really bad programmer
 - My interfaces are shit
-- Contact me here: 
+- Stay cool, Stay in school and smoke crack
