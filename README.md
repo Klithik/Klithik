@@ -1,2 +1,1 @@
 - My interfaces are shit
-- Stay cool, stay in school and smoke crack
